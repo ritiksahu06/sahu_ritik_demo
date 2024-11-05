@@ -1,3 +1,4 @@
 # sahu_ritik_demo
 Demo
-Author - Ritik Sahu.
+Author - RITIK SAHU (KING).
+
